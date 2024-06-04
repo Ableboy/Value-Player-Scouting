@@ -1,5 +1,4 @@
-![football](https://github.com/Ableboy/Value-Player-Scouting/assets/117966877/446a13bc-047c-41a7-8bc3-b86336dde8d4)
-
+![football](https://github.com/Ableboy/Value-Player-Scouting/assets/117966877/94b4bfa4-d513-47b0-97a5-93271b0a0b49)
 # Fetching Out Low Cost and Most Valuable Players
 
 ## Description
